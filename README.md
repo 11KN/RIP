@@ -1,2 +1,2 @@
 # RIP
-New game
+New game!
